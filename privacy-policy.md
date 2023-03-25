@@ -23,7 +23,7 @@ For the purposes of this Privacy Policy:
 
 
 
-- __Company__ (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to Brick Sort.
+- __Company__ (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to Clean Lean Submarine.
 
 
 
